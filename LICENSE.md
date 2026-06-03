@@ -1,4 +1,4 @@
-# 
+# Exclusivo reversal trading bot scripts para Mac OS | Gratuito reversal trading bot scripts para PC Windows. Con soporte de margen aislado y generación de señales — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
